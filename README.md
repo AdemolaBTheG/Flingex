@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Flingex
+- 👋 Hi, I’m @Ademola
 - 👀 I’m interested in ... Football/Basketball, Reading, Games
 - 🌱 I’m currently learning ... Programming
 - 💞️ I’m looking to collaborate on /
